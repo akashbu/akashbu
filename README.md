@@ -14,7 +14,6 @@
 
         - 📫 How to reach me akash.butala.365@gmail.com
 
-        - 📄 Know about my experiences https://drive.google.com/file/d/1CoAqIINkPqrMnRgby6dkrtNoKuyogLoc/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
